@@ -1,2 +1,1 @@
-# udiin
-Bebas asal sopan
+#Janda
